@@ -1,1 +1,1 @@
-# kpi_2nd_semestr
+# kpi 2-nd semestr
